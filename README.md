@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @samK777
 - 👀 I’m interested in AI
-- 🌱 I’m currently learning NMIMS MPSTME
+- 🌱 I’m currently learning in NMIMS MPSTME
 - 📫 How to reach me: instagram @samriddhi_kapoor29
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i can dance :)
