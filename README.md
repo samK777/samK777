@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @samK777
 - 👀 I’m interested in AI
-- 🌱 I’m currently learning in NMIMS MPSTME
-- 📫 How to reach me: instagram @samriddhi_kapoor29
+- 🌱 I’m currently learning in MANIPAL UNIVERSITY JAIPUR
+- 📫 How to reach me: LINKED IN: Samriddhi Kapoor, https://www.linkedin.com/in/samriddhi-kapoor-samk/ 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i can dance :)
 
